@@ -8,5 +8,5 @@ did sytem , feel free to int if you want to bmf
 
 i appear mostly in gtcs , sometimes mafia 
 
-i most of the time im alone by myself, so please bmf dont hesitate
+most of the time im alone by myself, so please bmf dont hesitate
 
