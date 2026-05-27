@@ -6,7 +6,7 @@ $${ andre / andreslop }$$
 
 ) ***if you mock my friends / family / anyone innocent in general heavy dni.***
 
-_did sytem , feel free to int if you want to bmf_
+_did system , feel free to interact , i tend to hide behind people,if youre uncomfortable then inform me please, communication is key._
 
 _i appear mostly in gtcs , sometimes ~~mafia~~ or any other ~~rps~~ if interested_
 
