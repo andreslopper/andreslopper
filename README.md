@@ -8,7 +8,7 @@ $${ andre / andreslop }$$
 
 _did system , feel free to interact , i tend to hide behind people,if youre uncomfortable then inform me please, communication is key._
 
-_i appear mostly in gtcs , sometimes ~~mafia~~ or any other ~~rps~~ if interested_
+_i appear mostly in gtcs / buildbattles / hangouts , sometimes ~~mafia~~ or any other ~~rps~~ if interested_
 
 _most of the time im alone by myself, so please bmf dont hesitate_
 
