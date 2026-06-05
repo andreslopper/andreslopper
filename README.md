@@ -2,8 +2,6 @@
 
 $${ andre / andreslop }$$
 
-*im NOT ANDREW2002 , IT PISSES ME OFF WHEN MY OWN IDENTITY WAS MISTAKEN WITH ANOTHER FICTIONAL CHARACTER, EVEN ITS A JOKE.*
-
 
 ) _under 13 & over 25 dni unless close_ 
 
