@@ -3,9 +3,9 @@
 $${ andre / andreslop }$$
 
 
-) _under 13 & over 25 dni unless close_ 
+ _under 13 & over 25 dni unless close_ 
 
-) ***if you mock my friends / family / anyone innocent in general heavy dni.***
+ ***past repostories are not from andre , feel free to view them.***
 
 _did system , feel free to interact , i tend to hide behind people,if youre uncomfortable then inform me please, communication is key._
 
