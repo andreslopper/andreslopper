@@ -3,6 +3,6 @@
 *" i wonder what is my purpose in their life, or rather our life. "*
 
 
-**gtc regular**
+**gtc regular / afk athlete **
 
 im known for having **yume nikki / teto songs / other cosplays** in gtcs 
