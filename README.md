@@ -4,5 +4,5 @@ $${\color{c9c9c9}" ⠀ wake ⠀up.  ⠀"}$$
 
 
 󠀲󠀲󠀲󠀲󠀲𝆓 $BYI⠀:$
- 
-  $$self ⠀diagonised ⠀sys , ⠀lots⠀ of ⠀untreated ⠀mental ⠀illness . ⠀Sometimes ⠀hes ⠀hyped,⠀ sometimes ⠀hes ⠀silent , ⠀speaks ⠀in ⠀thrid ⠀person ⠀if ⠀stressed . ⠀Dont ⠀approach ⠀randomly ⠀without ⠀a ⠀reason , ⠀will ⠀hide ⠀you ⠀for ⠀15 ⠀minutes . ⠀Rather ⠀stick ⠀to ⠀oomfs ⠀/⠀ close ⠀ones ⠀/⠀ someone ⠀that ⠀oomfs ⠀know ⠀or ⠀friends ⠀with .$$
+
+$$do ⠀NOT ⠀call ⠀me ⠀AndreW2002 ⠀just ⠀because ⠀my ⠀name ⠀is ⠀Andre ⠀and ⠀im ⠀blue ⠀:/ ⠀, ⠀, ⠀self ⠀diagonised ⠀sys , ⠀lots⠀ of ⠀untreated ⠀mental ⠀illness . ⠀Sometimes ⠀hes ⠀hyped,⠀ sometimes ⠀hes ⠀silent , ⠀speaks ⠀in ⠀thrid ⠀person ⠀if ⠀stressed . ⠀Dont ⠀approach ⠀randomly ⠀without ⠀a ⠀reason , ⠀will ⠀hide ⠀you ⠀for ⠀15 ⠀minutes . ⠀Rather ⠀stick ⠀to ⠀oomfs ⠀/⠀ close ⠀ones ⠀/⠀ someone ⠀that ⠀oomfs ⠀know ⠀or ⠀friends ⠀with .$$
