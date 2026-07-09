@@ -12,6 +12,6 @@ had to update it since its very very outdated :/...
  >>> i beg you im NOT AndreW2002 JUST BECAUSE I HAVE BLUE HAIR COLOR AND WAS NAMED ANDRE😭😭 (i hate it to my core in my veins, i dont hate the character itself)
 
 
-i usually hangout with friends , especially $${\color{c9c9c9}@NikaMokochi}$$ , $${\color{pink}@shyangelica}$$ , $${\color{cyan}@itrap-2245}$$ , so if you spot me with one of those people above, dniuf. unless im alone / not with those people above.
+i usually hangout with friends , especially $${\color{c9c9c9}@NikaMokochi}$$ , $${\color{pink}@tsukitoki}$$ , $${\color{cyan}@itrap-2245}$$ , so if you spot me with one of those people above, dniuf. unless im alone / not with those people above.
 
 overall i can go TOO far out of comfort, so stand up and stop me instead. speak up for yourself and dont be silent..
