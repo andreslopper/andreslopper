@@ -5,5 +5,3 @@ $${\color{#FDA468} 𝄞⨾𓍢ִ໋ \space bodily \space fifteen }$$
 $${\color{#FFD2B5}\space , \space over \space 21 \space and \space under \space 13 \space IWEC \space unless \space close  }$$
   
   -------
-
-$${\color{#FFD2B5} 𖹭 \space number \space one }$$ $${\color{#FDA468}\space Kasane \space Teto \space lover \space n' \space fan }$$
