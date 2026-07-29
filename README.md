@@ -5,3 +5,5 @@ $${\color{#FDA468} 𝄞⨾𓍢ִ໋ \space bodily \space fifteen }$$
 $${\color{#FFD2B5}\space , \space over \space 21 \space and \space under \space 13 \space IWEC \space unless \space close  }$$
   
   -------
+<img width="628" height="111" alt="zalo_539245181944833" src="https://github.com/user-attachments/assets/ec638a55-c44e-4271-bd30-38d91a44e632" />
+( THANK U @pt-contributers <3 )
