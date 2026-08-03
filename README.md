@@ -10,7 +10,3 @@ $${\color{#FFD2B5}\space , \space over \space 21 \space and \space under \space 
 <img width="628" height="111" alt="zalo_539245181944833" src="https://github.com/user-attachments/assets/ec638a55-c44e-4271-bd30-38d91a44e632" />
 
 $${\color{#505050}  THANK\space U \space pt-contributers!!!}$$
-  
-  -------
-  $${\color{#FDA468}\space byi \space . \space . \space . \space for \space pt }$$
-  $${\color{#FDA468} im \space SUPER \space SUPER \space and \space very \space DRY.}$$ $${\color{#FFD2B5} \space if \space you \space interact \space with \space me, \space expect \space dry \space humor \space / \space short \space convos \space . \space . \space . }$$
