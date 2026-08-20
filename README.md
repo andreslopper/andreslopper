@@ -1,5 +1,5 @@
- ![](https://komarev.com/ghpvc/?username=andreslopper&color=666666&style=plastic&base=1700&label=DEBT+REMAINING)
- 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=andreslopper&color=666666&style=plastic&base=1700&label=DEBT+REMAINING)
+
 <img width="1083" height="1087" alt="zalo_145459245759975" src="https://github.com/user-attachments/assets/2f18fb76-a4d3-4319-8d33-f3731d6e2694" />
 
 
