@@ -12,4 +12,4 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"> byi.
-<p align="center"> i do bite unless you saw you b4 & mutuals of oomfs
+<p align="center"> i do bite unless i saw you b4 & mutuals/friends of oomfs
