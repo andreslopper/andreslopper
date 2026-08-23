@@ -6,3 +6,10 @@
 $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc} \space andre \space / \space jndres}$$ 
 
 <p align="center"> <a href="https://andreslopper.straw.page">straw</a> - <a href="https://andreslopper.atabook.org/">ata</a>
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"> byi.
+<p align="center"> i do bite unless you saw you b4 & mutuals of oomfs
