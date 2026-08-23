@@ -12,5 +12,5 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"> byi.
-<p align="center"> when im upset/ listed otherwise i will and do bite unless i saw you b4 & mutuals/friends of oomfs ( wont do that mostly. )
+<p align="center"> when im upset/ listed otherwise( ex: dniuf, dniuc,.. ) i will and do bite unless i saw you b4 & mutuals/friends of oomfs ( wont do that mostly. )
 <p align="center"> i stick with my moots,in rare occasions ill be with somebody when i feel too lonely.
