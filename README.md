@@ -12,5 +12,4 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"> byi.
-<p align="center"> when im upset/ listed otherwise( ex: dniuf, dniuc,.. ) i will and do bite unless i saw you b4 & mutuals/friends of oomfs ( wont do that mostly. )
-<p align="center"> i stick with my moots,in rare occasions ill be with somebody when i feel too lonely.
+<p align="center"> im unstable these days, especially at night (utc+7) i became overwhelmed by everything that is happening to me, and i have black and white thinking/mindset, so im super sorry if i ignored you when it happens i swear i dont mean it
