@@ -5,11 +5,14 @@
 
 $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc} \space andre \space / \space jndres}$$ 
 
-<p align="center"> <a href="https://andreslopper.straw.page">straw</a> - <a href="https://andreslopper.atabook.org/">ata</a>
+  <p align="center"> <a href="https://andreslopper.straw.page">straw</a> - <a href="https://andreslopper.atabook.org/">ata</a>
+    
+ ---
+ 
+  <p align="center">$${\color{#bbbbbb} special \space thanks \space to \space these \space accounts \space down \space here \space :}$$
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"> byi.
-<p align="center"> im unstable these days, especially at night (utc+7) i became overwhelmed by everything that is happening to me, and i have black and white thinking/mindset, so im super sorry if i ignored you when it happens i swear i dont mean it
+<p align="center"> <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> & <a href="https://github.com/style-town">style-town</a>
+
+--- 
+
+im not doing so well lately, so please iwc, especially iwvec or dniuf when told overwise, thank you for reading
