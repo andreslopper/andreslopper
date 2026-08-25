@@ -15,4 +15,4 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 
 --- 
 
-im not doing so well lately, so please iwc, especially iwvec or dniuf when told overwise, thank you for reading
+<p align="center"> im not doing so well lately, so please iwc, especially iwvec or dniuf when told overwise, thank you for reading
