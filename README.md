@@ -15,4 +15,6 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 
 --- 
 
-<p align="center"> im not doing so well lately, so please iwc, especially iwvec or dniuf when told overwise, thank you for reading
+<p align="center"> im not doing so well lately, so please iwc, especially iwvec or dniuf when told overwise, some few more info in strawpage. .
+
+<p align="center"> for pony town ; c+h ok, friends can go up w/o asking, if you treat me normally ill treat you like the same, i rarely tell about myself unless you give me permission,etc. 
