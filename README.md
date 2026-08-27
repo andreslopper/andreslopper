@@ -5,7 +5,7 @@
 
 $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc} \space andre \space / \space jndres}$$ 
 
-  <p align="center"> <a href="https://andreslopper.straw.page">straw</a> - <a href="https://andreslopper.atabook.org/">ata</a>
+  <p align="center"> <a href="https://andreslopper.straw.page">straw</a> - <a href="https://andreslopper.atabook.org/">ata</a> - <a href="https://andreartcomms.straw.page/">art comms</a>
     
  ---
  
