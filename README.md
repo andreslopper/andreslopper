@@ -15,6 +15,6 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 
 --- 
 
-<p align="center"> please dniuid ( do not interact unless i did. ) im tired to deal with small or big things around me
+<p align="center"> please dniuid ( do not interact unless i did. ) if i dont know you ( yes friends can interact freely. ), im tired to deal with small or big things around me
 
 <p align="center"> for pony town ; c+h ok, friends can go up w/o asking, if you treat me normally ill treat you like the same, i rarely tell about myself unless you give me permission,etc. 
