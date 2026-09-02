@@ -17,7 +17,9 @@ $${\color{#cdcdcd} . \space .\space (ᴗ˳ᴗ)ᶻ𝗓𐰁 }$$ $${\color{#dcdcdc}
 
 <p align="center"> for pony town ; c+h ok, friends can go up w/o asking, if you treat me normally ill treat you like the same, i rarely tell about myself unless you give me permission,etc. 
 
-<p align="center">
+<p align="center"> about me since starwpage is outdated, im extremely unstable (mentally or wtv you name it,) though you can talk and chat with me normally, mind you i can have impulsive behaviours if i get triggered.
+
+  
 <p align="center">
 <p align="center">
 <p align="center">
