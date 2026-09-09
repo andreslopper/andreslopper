@@ -7,7 +7,7 @@ $${\color{#35303A} making \space jokes \space about\space others \space disabili
 
 $${\color{#1E427D} lesbian \space space \space princess \space / \space hazbin \space hotel \space / \space helluva \space  boss \space fans \space , \space qw-l/r-x/vivziepop \space supporters }$$
 
-$${\color{#21457D
+$${\color{#21457D} wip. }$$
   </p></details>
 
 [![image-d00f-gradientmap-pro.png](https://i.postimg.cc/26JhBBD2/image-d00f-gradientmap-pro.png)](https://postimg.cc/PpWPgJNw)
