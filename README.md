@@ -15,8 +15,8 @@ $${\color{#21457D} zoo/homo \space phobic \space , \space other \space basic \sp
     
   $${\color{#35303A} osdd \space system  , \space iwc \space most \space of \space the \space time. \space (unless \space close \space friends.) }$$
 
-  $${\color{#1E427D} im \space open \space to \space make \space friends, }$$
-  $${\color{#21457D}though \space please \space note \space that \space im \space dry \space (due \space to \space mental \space  illnesses.) \space or \space feel \space 'too \space much', \space if \space  i \space made \space you \space feel \space like \space that, \space dont \space  hesitate \space to \space tell \space me }$$
+  $${\color{#1E427D} im \space open \space to \space make \space friends,\space i \space may \space ask \space you \space to \space bmf \space if \space you \space want \space friends/mutuals. \space or  \space you \space have \space bmf \space in \space name.}$$
+  $${\color{#21457D}though \space please \space note \space that \space im \space dry \space (due \space to \space mental \space  illnesses.) \space or \space feel \space 'too \space much', \space if \space   i \space made \space you \space feel \space like \space that, \space dont \space  hesitate \space to \space tell \space me }$$
   </p></details>
 
 [![image-d00f-gradientmap-pro.png](https://i.postimg.cc/26JhBBD2/image-d00f-gradientmap-pro.png)](https://postimg.cc/PpWPgJNw)
