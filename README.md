@@ -11,7 +11,7 @@ $${\color{#21457D} zoo/homo \space phobic \space , \space other \space basic \sp
   </p></details>
 
 <details><summary> $${\color{#869381} about \space me }$$ </summary>
-  <p> $${\color{#3C2C2A} overall \space info \space can \space b \space found \space on \space strawpage \space (slightly \space outdated.) }$$
+  <p> $${\color{#3C2C2A} i \space have \space ***some*** \space past \space experiences, \space yes \space i \space am  \space VERY \space paranoid,  \space especially \space when \space it \space comes \space to \space friends. \space i \space deeply \space apologize \space if \space i \space made \space you \space feel \space uncomfortable \space if \space im  \space acting \space paranoid  }$$
     
   $${\color{#35303A} osdd \space system  , \space iwc \space most \space of \space the \space time. \space (unless \space close \space friends.) }$$
 
