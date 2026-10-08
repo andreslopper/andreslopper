@@ -1,26 +1,13 @@
-[![image-65e4-gradientmap-pro.png](https://i.postimg.cc/RhYysPTz/image-65e4-gradientmap-pro.png)](https://postimg.cc/1Vpv4rTW)
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=500&color=7F887C&center=true&width=690&lines=I+wasn't+jealous+before+we+met;Now+every+woman+I+see+is+a+potential+threat;And+I'm+possessive%2C+it+isn't+nice;You've+heard+me+saying+that+smoking+was+my+only+vice;But+now+it+isn't+true;Now+everything+is+new;And+all+I've+learned+has+overturned;I+beg+of+you;Don't+go+wasting+your+emotion;Lay+all+your+love+on+me;It+was+like+shooting+a+sitting+duck;A+little+small+talk%2C+a+smile%2C+and%2C+baby%2C+I+was+stuck;I+still+don't+know+what+you've+done+with+me;A+grown-up+woman+should+never+fall+so+easily;I+feel+a+kind+of+fear;When+I+don't+have+you+near;Unsatisfied%2C+I+skip+my+pride;I+beg+you%2C+dear;Don't+go+wasting+your+emotion;Lay+all+your+love+on+me;I've+had+a+few+little+love+affairs;They+didn't+last+very+long+and+they've+been+pretty+scarce;I+used+to+think+I+was+sensible;It+makes+the+truth+even+more+incomprehensible;'Cause+everything+is+new;And+everything+is+you;And+all+I've+learned+has+overturned;What+can+I+do%3F;Don't+go+wasting+your+emotion;Lay+all+your+love+on+me;Don't+go+wasting+your+emotion;Lay+all+your+love+on+me;..." alt="Typing SVG" /></a>
-[![image-d00f-gradientmap-pro.png](https://i.postimg.cc/26JhBBD2/image-d00f-gradientmap-pro.png)](https://postimg.cc/PpWPgJNw)
-[![IMG-20260909-182125.png](https://i.postimg.cc/KYHBy1J5/IMG-20260909-182125.png)](https://postimg.cc/7CSf3ZvC)<details><summary> $${\color{#869381}dni \space  list }$$ </summary><p> $${\color{#3C2C2A}vocaloid \space / \space forsaken \space / \space tadc \space / \space mcyt \space / \space dandys \space world \space fandom \space or \space fans \space on \space thin \space ice.}$$
+[![Khong-Co-Tieu-De79-20261008213227.png](https://i.postimg.cc/2y6Km0YY/Khong-Co-Tieu-De79-20261008213227.png)](https://postimg.cc/LYcT3BhQ)
 
-$${\color{#35303A} making \space jokes \space about\space others \space disability/death/race/genocide events }$$
+ $${\color{#8f0000} "As \space our \space fleeting \space world \space dictates."}$$
+ $${\color{#8f0000} \space "Sakuras \space thousandfold, \space entwined \space with \space night." }$$ 
 
-$${\color{#1E427D} lesbian \space space \space princess \space / \space hazbin \space hotel \space / \space helluva \space  boss \space fans \space , \space qw-l/r-x/vivziepop \space supporters }$$
+[![image-fcb1-gradientmap-pro.png](https://i.postimg.cc/tCdxppBv/image-fcb1-gradientmap-pro.png)](https://postimg.cc/HVxxtDDb)
+$\textcolor{#8f0000}{\text{ ⊹܀ㅤㅤㅤcall us tright  /  andres ˓     }}$
 
-$${\color{#21457D} zoo/homo \space phobic \space , \space other \space basic \space dnis. }$$
-  </p></details>
+$\textcolor{#8f0000}{\text{ The888'sCollectiveㅤㅤㅤ﹏ㅤㅤㅤosdd sys ! }}$
 
-<details><summary> $${\color{#869381} about \space me }$$ </summary>
-  <p> $${\color{#3C2C2A} i \space have \space ***some*** \space past \space experiences, \space yes \space i \space am  \space VERY \space paranoid,  \space especially \space when \space it \space comes \space to \space friends. \space i \space deeply \space apologize \space if \space i \space made \space you \space feel \space uncomfortable \space if \space im  \space acting \space paranoid  }$$
-    
-  $${\color{#35303A} osdd \space system  , \space iwc \space most \space of \space the \space time. \space (unless \space close \space friends.) }$$
+[![2e5c1566152452b40bfb59b26d8620b2.jpg](https://i.postimg.cc/Dw2bzHDJ/2e5c1566152452b40bfb59b26d8620b2.jpg)](https://postimg.cc/YhsSnntM)
 
-  $${\color{#1E427D} im \space open \space to \space make \space friends,\space i \space may \space ask \space you \space to \space bmf \space if \space you \space want \space friends/mutuals. \space or  \space you \space have \space bmf \space in \space name.}$$
-  $${\color{#21457D}though \space please \space note \space that \space im \space dry \space (due \space to \space mental \space  illnesses.) \space or \space feel \space 'too \space much', \space if \space   i \space made \space you \space feel \space like \space that, \space dont \space  hesitate \space to \space tell \space me }$$
-  
-  $${\color{#869381} i \space have \space a \space huge \space cuddle \space comfort, \space i \space cuddle \space randoms/moots  \space to \space be \space less \space lonely, \space i \space hope \space it \space doesnt \space bother \space anyone }$$
-  </p></details>
-
-[![image-d00f-gradientmap-pro.png](https://i.postimg.cc/26JhBBD2/image-d00f-gradientmap-pro.png)](https://postimg.cc/PpWPgJNw)
-
-[![image-65e4-gradientmap-pro.png](https://i.postimg.cc/RhYysPTz/image-65e4-gradientmap-pro.png)](https://postimg.cc/1Vpv4rTW)
+[![Khong-Co-Tieu-De79-20261008213227.png](https://i.postimg.cc/2y6Km0YY/Khong-Co-Tieu-De79-20261008213227.png)](https://postimg.cc/LYcT3BhQ)
