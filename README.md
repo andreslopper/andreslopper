@@ -5,4 +5,6 @@ $\textcolor{#80330d}{\text{ transneumasc individual, they/he preferred if friend
 ㅤㅤㅤ
 ㅤㅤㅤ
 <img align="right" width="139" height="139" src="https://i.postimg.cc/yNQzkLNR/image-c06d-gradientmap-pro.png/139/139">
+$\textcolor{#80330d}{\text{ i MAY or may not make a distance from you if were friends. }}$
+$\textcolor{#80330d}{\text{ i an very paranoid about my friend relationships, please bare me! }}$
 $\textcolor{#80330d}{\text{ though as listed above, i am open for a short/long convo anytime }}$
