@@ -2,7 +2,7 @@
 <p align="center"> $\textcolor{#730000}{\text{andre(s)ㅤㅤㅤ/ㅤㅤㅤtright }}$ </p>
 ㅤㅤㅤ
 
-<p align="center"> $\textcolor{#ffe3b3}{\text{ bodily 6teen , osdd sys }}$ </p>
+<p align="center"> $\textcolor{#ffe3b3}{\text{ bodily 6teen  ㅤㅤㅤ osdd sys }}$ </p>
 
 
 [![Khong-Co-Tieu-De97-20261119213615.png](https://i.postimg.cc/QxTvZ61N/Khong-Co-Tieu-De97-20261119213615.png)](https://postimg.cc/KRm0nD0C)
