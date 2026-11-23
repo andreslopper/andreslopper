@@ -1,5 +1,5 @@
 [![Khong-Co-Tieu-De98-20261119215652-gradient-map-custom.png](https://i.postimg.cc/g2y5nnM2/Khong-Co-Tieu-De98-20261119215652-gradient-map-custom.png)](https://postimg.cc/bZJL5Nc7)
-<p align="center"> $\textcolor{#730000}{\text{andre(s)}}$ㅤㅤㅤ $\textcolor{#ff0000}{\text{ / }}$ ㅤㅤㅤ$\textcolor{#730000}{\text{tright}}$ </p>
+<p align="center"> $\textcolor{#730000}{\text{andre(s)}}$ㅤㅤㅤ $\textcolor{#730000}{\text{ / }}$ ㅤㅤㅤ$\textcolor{#730000}{\text{tright}}$ </p>
 ㅤㅤㅤ
 
 <p align="center"> $\textcolor{#ffe3b3}{\text{ bodily 6teen ㅤㅤㅤ do not copy my skins unless friends,}}$ </p>
